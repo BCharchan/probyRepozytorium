@@ -1,0 +1,2 @@
+# probyRepozytorium
+Próby grupy piątkowej
